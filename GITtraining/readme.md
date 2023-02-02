@@ -1,0 +1,12 @@
+xsbxhsabxas
+xascscnsac
+sacakca
+casca
+cascasc
+ascasc
+ascasc
+asc'as
+casc
+as
+ca
+s
